@@ -1,22 +1,16 @@
 # Vijay Kumar Namdev
 
 ## About Me
-Mera naam Vijay Kumar Namdev hai.
-Main Prayagraj, Uttar Pradesh se hu.
-( Hey I am Vijay Kumar Namdev from Prayagraj belongs a small village) 
+Hey I am Vijay Kumar Namdev from Prayagraj belongs a small village. Currently I manage NextMOX Pvt Ltd as a CEO & Founder. 
 
 ## Education
-Intermediate from UP Board 
-Graduate from Rajendra Singh University 
-O Level, A Level, B Level, C Level Qualified
+Intermediate from UP Board | Graduate from Rajendra Singh University | O Level, A Level, B Level, C Level Qualified 
 
 ## Career
-Cyber Security Protector 
-Trainer & Influencer 
+Cyber Security Protector | Trainer | Influencer 
 
 ## Achievements
-CEO & Founder of NextMOX Pvt Ltd 
-Founder of Vijay Foundation Of Humanity 
+CEO & Founder of NextMOX Pvt Ltd | Founder of Vijay Foundation Of Humanity 
 
 
 ## Contact

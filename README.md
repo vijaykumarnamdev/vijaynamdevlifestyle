@@ -16,5 +16,5 @@ Main Prayagraj, Uttar Pradesh se hu.
 
 ## Contact
 Email:vijaynamdev.prayagraj@gmail.com
-Instagram:vijaynamdevlifestyle
-YouTube:vijaynamdevlifestyle 
+Instagram:https://www.instagram.com/vijaynamdevlifestyle?igsh=MTZqajQ3NWF1bjVtMQ==
+YouTube: https://youtube.com/@vijaynamdevlifestyle?si=_BM1xeWE0mRmR92_
